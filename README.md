@@ -1,8 +1,8 @@
 # Ken Ezeobollo
 
-### Medicine and surgery
+### Geography
 
-I live in Neuhausen,in the city of Munich, in Bayern Germany
+I live in Neuhausen, in the city of Munich, in Bayen Germany.
 
 ### Reading
 
